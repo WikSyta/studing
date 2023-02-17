@@ -1,3 +1,2 @@
 # studing
- *Hell yes*
-**hililaka** 
+ **Hell yes**
