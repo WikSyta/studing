@@ -1,2 +1,2 @@
 # studing
- **Hell yes**
+ **_Hell.yes_**
